@@ -1,1 +1,0 @@
-# Technical-writer-application-
